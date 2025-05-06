@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @Quantumj1
 - 👀 I’m interested in mobile app development
 - 🌱 I’m currently learning 
-- 📫 
+- 📫 osafoparrypatrickjoseph@gmail.com
+- ALways available to learn
   
 
 <!---
